@@ -1,1 +1,0 @@
-# OEsquadraoSuicida.github.io
